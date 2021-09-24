@@ -6,5 +6,11 @@ Age: 14
 CODE: JavaScrip, C, Batch, Python
 
 I am Developer Discord 
+I Don't like user copy source code
+
+Ok so I very interesting, but Not boring
+Joker Time :o)
+
+🃏
 
 Update late
